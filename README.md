@@ -1,4 +1,4 @@
 KELOMPOK 8
 
 - Rizal Teddyansyah (2000107)
-- Hilman Fauzi HErdiana (2000879)
+- Hilman Fauzi Herdiana (2000879)
